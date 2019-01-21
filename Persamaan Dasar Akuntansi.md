@@ -1,0 +1,1 @@
+Persamaan Dasar Akuntansi
